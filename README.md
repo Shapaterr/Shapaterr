@@ -5,7 +5,7 @@
 ## Hey! 👋
 I'm Shapater, a 18+ years old python or web developer from Pakistan.
 
-- 🦔 Founder of [CoolCore](https://discord.gg/coolcore) Community
+- 🦔 Founder of [Owner](https://discord.gg/drontop) Community
 
 + a lot more ;)
 
@@ -18,4 +18,4 @@ I'm Shapater, a 18+ years old python or web developer from Pakistan.
 
 ## Contact
 - [@urs_hasannnn](https://instagram.com/urs_hasannnn) on Insta
-- [@shapater.dev](./) on Discord
+- [@ig.smarti]([https://discord.gg/](https://discord.com/users/1288138699032498339)) on Discord
